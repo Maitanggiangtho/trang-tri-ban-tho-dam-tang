@@ -13,6 +13,7 @@ Thể hiện sự tôn trọng phong tục truyền thống, tránh phạm đi�
 Giúp tang lễ được chu toàn, mang đến sự an tâm cho gia quyến.
 
 2. Nguyên tắc khi trang trí bàn thờ đám tang
+
 Xem thêm: https://maitanggiangtho.vn/trang-tri-ban-tho-dam-tang/
 Để bàn thờ đám tang vừa đẹp vừa đúng nghi thức, bạn cần tuân thủ một số nguyên tắc cơ bản:
 
