@@ -11,6 +11,7 @@
 # 
 
 # Ý nghĩa của việc phát tang
+Xem thêm: https://maitanggiangtho.vn/trang-tri-ban-tho-dam-tang/
 
 # Phong tục phát tang không chỉ đơn thuần là một nghi thức mà còn mang những ý nghĩa sâu sắc:
 
